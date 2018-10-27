@@ -1,1 +1,0 @@
-# sefa.dedebek.github.io
